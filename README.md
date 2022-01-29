@@ -1,4 +1,4 @@
-@maidqt says: 
+@jennifer-oh says: 
 #FAFDC6 is the best colo(u)r
 
 <!---
